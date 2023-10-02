@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-avatar from https://www.pixiv.net/artworks/94873867 artist:花本
+avatar from https://www.pixiv.net/artworks/94873867
